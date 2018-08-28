@@ -1,4 +1,4 @@
-Ingredients:
+## Ingredients:
 2 large or 3 medium beets, thoroughly washed
 2 large or 3 medium potatoes, sliced into bite-sized pieces
 4 Tbsp of cooking oil
