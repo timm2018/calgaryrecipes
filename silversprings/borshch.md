@@ -5,6 +5,10 @@
 
 
 4 Tbsp of cooking oil
+
+
+
+
 1 medium onion, finely diced
 2 carrots, grated
 1/2 head of cabbage, thinly sliced (see picture)
